@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kamaa998
+- 👀 I’m interested in playing video games, reading manga and programming. I love football. :)
+- 🌱 I’m currently learning C++ and python! 
+- 📫 How to reach me: Instagram: corrado.beninato98, Facebook: Corrado Beninato. 
